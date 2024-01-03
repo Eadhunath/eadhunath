@@ -26,4 +26,4 @@ My passion lies in ongoing exploration, where I actively seek to enhance develop
 - Sports
     - Formula 1 🏎️
     - Football ⚽
-    - American Football 
+    - American Football 🏈
